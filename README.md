@@ -1,4 +1,4 @@
-![ColdfireDZN banner](https://i.imgur.com/sDinzrv.png)
+![ColdfireDZN banner](https://i.imgur.com/EGRoQTq.png)
 
 ### Hi 😃
 
