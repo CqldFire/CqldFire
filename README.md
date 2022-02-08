@@ -2,8 +2,8 @@
 
 ### Hi 😃
 
-I am a web designer and developer for minecraft servers living in Oregon, USA!
+I am a web designer and developer for minecraft servers living in Oregon.
 
-My website: https://coldfiredzn.com
+Check out my website - https://coldfiredzn.com
 
-My discord: https://coldfiredzn.com/discord
+Also come drop by my Discord server - https://coldfiredzn.com/discord
